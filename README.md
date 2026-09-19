@@ -218,4 +218,4 @@ Urban Terror is offered as a full free version, with all features and updates in
 Don’t miss out on the action! **Download Urban Terror today and join the adventure!**
 
 ---
-**Last updated:** 2026-09-19 16:50:42 UTC
+**Last updated:** 2026-09-19 19:00:58 UTC
